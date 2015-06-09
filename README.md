@@ -1,2 +1,7 @@
 # boface
 Bo's FACE. 
+
+
+WE'RE MAKING A GEM WITH BO'S FACE. 
+
+ADD YOUR IDEAS!!!!
